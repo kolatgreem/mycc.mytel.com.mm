@@ -1,0 +1,2 @@
+# mycc.mytel.com.mm
+https://mycc.mytel.com.mm:9090/#/chatclient/P2RvbWFpbj0xOGQxMzEzOS0xYTRhLTRkNTItOWU0Ni1kMDZmNTE0NzI0ODkmdXNlcm5hbWU9JmNvbG9yPSZpbnRlcm5hbD11bmRlZmluZWQmY2xvc2VfYm94PXVuZGVmaW5lZA%3D%3D
